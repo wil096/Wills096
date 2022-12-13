@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Wills096
+- 👋 Hi, I’m @Will096
 - 👀 I’m interested  em aprender cada vez mais  
 - 🌱 I’m currently learning tudo que vejo
 - 💞️ I’m looking to collaborate on ...
